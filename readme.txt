@@ -4,8 +4,10 @@ Comment Ça Va?
 
 Ça va!
 
-Merde!
+Ops!
 
-putain!
+We won’t use any bad focal online!
+
+In case the though police are snooping
 
 Pas mal, Non?
